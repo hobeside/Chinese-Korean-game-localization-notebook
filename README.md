@@ -12,3 +12,12 @@
 🫧 游戏本地化学习笔记pdf文件百度云盘(提取码：0uqj)  [✈️传送门](https://pan.baidu.com/s/1iBTXfLD8QCMpJl6ZK-WvUQ?pwd=0uqj) 
 
 🫧 项目主理人的b站频道 [✈️传送门](https://space.bilibili.com/14659237)
+
+
+# 联系方式
+
+如果想要加入本地化数据库的编辑，请通过邮件联系主理人
+
+📮 eunjiwang2728@gmail.com
+
+📮 blcueunjiwang@naver.com
